@@ -1,1 +1,1 @@
-# objetivos-futuro-com-matem-tica-aplicada
+# objetivos-futuros-com-matem-tica-aplicada
